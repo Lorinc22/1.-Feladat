@@ -1,4 +1,4 @@
-# [Név]
+# Krity Lőrinc
 
 
 ## Hogyan kezdj neki?
